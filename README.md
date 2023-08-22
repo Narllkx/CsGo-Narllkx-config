@@ -1,0 +1,1 @@
+# CsGo-Narllkx-config
